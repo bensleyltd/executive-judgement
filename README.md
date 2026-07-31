@@ -21,3 +21,10 @@ https://www.paulbensley.co.uk
 
 LinkedIn:
 https://www.linkedin.com/in/paulbensley/
+
+## Learn more
+
+Read the latest articles:
+
+https://www.paulbensley.co.uk
+
